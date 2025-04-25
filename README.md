@@ -1,1 +1,2 @@
-# Bachelors-Thesis
+# Licencjat
+ 
